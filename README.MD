@@ -1,3 +1,3 @@
-Hello github,try to use a lot.
+Hello ,try it.
 
 https://github.com/hahaxo/blog/issues
